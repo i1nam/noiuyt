@@ -1,1 +1,0 @@
-<html><head><meta charset="utf-8" /></head><body><script type="text/javascript" nonce="mrX9mxXs">document.location.replace("https:\/\/vm.tiktok.com\/ZMjs1h1Qo\/");</script></body></html>
